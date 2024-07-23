@@ -1,0 +1,1 @@
+all you gotta do it login and it says what to do from there when u click the exe
